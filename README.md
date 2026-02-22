@@ -190,3 +190,16 @@ https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo
 مخصر سيرا https://sharemods.com/racpj8bxcrqu/tasksierraV2.zip.html
 
 هلي غماره https://www.dropbox.com/scl/fi/5w2soquqvfsyuo813ngb2/AM-hulix.zip?rlkey=qrdil9u31te73icvbe2fwcil9&dl=1
+
+كورلا
+https://modsfire.com/fjlZBhL7btTJKC4
+
+ددسن
+
+https://modsfire.com/61XzzOq75xZ188i
+
+ربع
+https://modsfire.com/CazKs25v6J2J8nA
+
+اكورد
+https://modsfire.com/55361O4P616oqN1
